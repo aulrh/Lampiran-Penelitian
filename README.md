@@ -1,2 +1,2 @@
-# lampiran2020
+# LampiranPenelitian
 Lampiran Penelitian 2020
